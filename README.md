@@ -22,4 +22,4 @@
 
 ---
 
-⭐️ From [Kasyap]([https://github.com/kasyap](https://github.com/SuhasDhar001))
+⭐️ From [Kasyap](https://github.com/SuhasDhar001)
